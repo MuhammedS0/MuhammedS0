@@ -1,2 +1,0 @@
-# FullStackBootcamp
-# FullStackBootcamp
